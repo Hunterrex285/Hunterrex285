@@ -2,7 +2,7 @@
 - 😄 Pronouns? ...He/him
 - 🌱 I’m currently exploring various domains
 - 📫 How to reach me? https://www.instagram.com/life_sucks_at_me/#
-- 👨‍💻 linkdin? 
+- 👨‍💻 linkdin? https://www.linkedin.com/in/saumyal-baranwal-65b074226/
 
 
 
