@@ -1,6 +1,6 @@
 - 👋 Hi, I’m Saumyal Baranwal
 - 😄 Pronouns? ...He/him
-- 🌱 I’m currently exploring various domains
+- 🌱 I’m currently developing my skills in backend development
 - 📫 How to reach me? https://www.instagram.com/life_sucks_at_me/#
 - 👨‍💻 linkdin? https://www.linkedin.com/in/saumyal-baranwal-65b074226/
 
